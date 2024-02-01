@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @sandy0987
-- 🌱 I’m currently learning ... many things......................................
-- 💞️ I’m looking to collaborate on nothing.
-- 📫 How to reach me: mailto: agsakhare****@gmail.com ...
+- Hi, I’m @sandy0987
+- I’m currently learning many things.
+- I’m looking to collaborate on nothing.
+- How to reach me: mailto: agsakhare****@gmail.com ...
 
 
 -
